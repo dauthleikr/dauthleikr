@@ -1,1 +1,1 @@
-![image-20200712233909420](profile.png)
+![image-20200712233909420](https://raw.githubusercontent.com/dauthleikr/dauthleikr/master/profile.png)
